@@ -104,6 +104,4 @@ Demonstration Video
 
 Watch my Customer Sales Performance & Business Analytics project demonstration:
 
-Click here to watch the demonstration videoWatch my Customer Sales Performance & Business Analytics project demonstration:
-
 Click here to watch the demonstration video
